@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1YHIQERn4aUs1mzh89ru_eM8bR2oqNgfb/view?usp=sharing](https://drive.google.com/file/d/1YHIQERn4aUs1mzh89ru_eM8bR2oqNgfb/view?usp=sharing)
 
-- ⚡ Fun fact **I think I am funny**
+- ⚡ Fun fact **Coding enthusiast with a feline coding partner, Mr. Olos, who constantly supervises from the computer table!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
